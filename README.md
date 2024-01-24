@@ -24,6 +24,6 @@ Here are some ideas to get you started:
 
 **🗨 How to contact me:**
 
-- 📧 **E-Mail:** [**`guangchenworks@outlook.com`**](mailto:rikkias@qq.com)
+- 📧 **E-Mail:** [**`Rikkias@qq.com`**](mailto:rikkias@qq.com)
 
-- 🐤 **Twitter:** [**`@GuangChen233`**](https://twitter.com/SuckerGM)
+- 🐤 **Twitter:** [**`@SuckerGM`**](https://twitter.com/SuckerGM)
